@@ -1,5 +1,5 @@
 ### Hi, I'm Amaris!
 
-Currently @ Twitter
-Pronouns: She/Her
+- Currently @ Twitter
+- Pronouns: She/Her
 
